@@ -1,5 +1,4 @@
-# wOAH so whatever i type here is gonna be on my github thats insane
-## I'm Jordan!
+# student govt communications chair, class of 2028 senator, CS @ RPI
 
 - i love coffee
 - my favorite bands are the strokes, radiohead, and arctic monkeys
